@@ -1,0 +1,2 @@
+#Touched 
+When a racecar driver wanted to win his race after his car was slow he brought it to be repaired.  [[Genie]] got the right parts to grant him the wish to win all the races.  This wish infused the race car with the mythos of Lightning McQueen, and now this car can't stop winning.

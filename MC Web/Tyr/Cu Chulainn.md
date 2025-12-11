@@ -1,0 +1,2 @@
+#Borderline 
+A court reporter, who strikes things from the record with his gae bola, thus fatally removing the comment and memory from reality. One of the reporters under [[Nietzsche]] but not in the same courtroom.  They recommend what cases might need to be moved up to him.
